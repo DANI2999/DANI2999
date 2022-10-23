@@ -1,4 +1,4 @@
-![](https://giphy.com/clips/erichamlet-developers-ballmer-gtm6yZur9eRFoo1UvO)
+![](https://giphy.com/gifs/time-money-is-pXT0B3DMmAV9q0EWQS)
 
 <a href=#><img src="contributions.svg"></a>
 
