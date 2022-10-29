@@ -1,4 +1,4 @@
-![](https://giphy.com/gifs/time-money-is-pXT0B3DMmAV9q0EWQS)
+![](https://giphy.com/stickers/christmas-walking-prenol-y5KIApIs1vZ8eQhual)
 
 <a href=#><img src="contributions.svg"></a>
 
